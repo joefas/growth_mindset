@@ -1,1 +1,1 @@
-live you life hommie
+live your life hommie
