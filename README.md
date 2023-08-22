@@ -1,1 +1,1 @@
-Future in tech
+live you life hommie
